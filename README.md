@@ -1,2 +1,2 @@
 # haruka
-just test ,sry ,guys
+just for test ,sry ,guys
